@@ -1,1 +1,1 @@
-Hello there, captain Kenobi!
+Hello there, general Kenobi!
